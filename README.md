@@ -1,3 +1,3 @@
-# non-paid.github.io
+# non-paid
 non-paid for
 reyhan alias Reyhan Jr. hehe 😏 
